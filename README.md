@@ -10,7 +10,7 @@
 
 - 💬 Ask me about **Flask,React**
 
-- 📫 How to reach me **amishra0614@gmail.com**
+- 📫 How to reach me **manshuman638@gmail.com**
 
 - ⚡ Fun fact **SIUUUUU!?!?!?!**
 
