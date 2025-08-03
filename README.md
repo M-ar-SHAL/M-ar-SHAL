@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **manshuman638@gmail.com**
 
-- 📄 Know about my experiences [https://bit.ly/3Gqca3p](https://bit.ly/3Gqca3p)
+- 📄 Know about my experiences [http://bit.ly/4lYEQA5](http://bit.ly/4lYEQA5)
 
 - ⚡ Fun fact **SIUUUUU!?!?!?!**
 
